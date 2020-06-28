@@ -10,4 +10,9 @@ Als Mattis Birk gefangen nimmt und Ronja sich deshalb freiwillig in die H&auml;n
 zwischen den beiden Sippen. Dabei wird die bisher verheimlichte Freundschaft zwischen Birk und Ronja offenbar, was aber bei
 den V&auml;tern der beiden nur Missfallen hervorruft. Die beiden Kinder ziehen darauf gemeinsam in die B&auml;renh&ouml;hle im Wald.
 
-
+## Behandelte Themen
+* Freiheit
+* Emanzipation
+* Treue
+* Respekt
+* Freundschaft
