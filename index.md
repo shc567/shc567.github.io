@@ -16,3 +16,6 @@ den V&auml;tern der beiden nur Missfallen hervorruft. Die beiden Kinder ziehen d
 * Treue
 * Respekt
 * Freundschaft
+
+Ronja sagte zu Mattis:
+> Birk und ich werden nur gemeinsam zur&uuml;ckkehren.
