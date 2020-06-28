@@ -19,3 +19,5 @@ den V&auml;tern der beiden nur Missfallen hervorruft. Die beiden Kinder ziehen d
 
 Ronja sagte zu Mattis:
 > Birk und ich werden nur gemeinsam zur&uuml;ckkehren.
+
+<img src="https://www.mfa-film.de/fileadmin/user_upload/filme/Ronja_Raeubertochter/Ronja_Artwork_Kino.jpg"/>
